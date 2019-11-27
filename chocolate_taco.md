@@ -1,3 +1,5 @@
+Recipe
+
 For the Macerated Strawberries:
 
     1/2 cup Strawberries, Cut into small pieces
